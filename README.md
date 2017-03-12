@@ -1,2 +1,2 @@
-# Shivang'g Resume 
+# Shivang's Résumé 
 To keep the updated CV
