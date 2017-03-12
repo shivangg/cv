@@ -1,2 +1,2 @@
-# cv
-To keep updated CV
+# Shivang'g Resume 
+To keep the updated CV
